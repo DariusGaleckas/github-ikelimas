@@ -1,1 +1,0 @@
-gyvenimas geras
